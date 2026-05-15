@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with AI-powered meme coin sniper bot | auto-sell + trailing-stop. Featuring auto-sell and trailing-stop, it's the best choice for automated
 
 
 
